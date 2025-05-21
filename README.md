@@ -1,4 +1,4 @@
-# about HH Sytstems
+# about HH Systems
 
 # our mission
 
